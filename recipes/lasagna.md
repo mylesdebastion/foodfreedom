@@ -15,8 +15,8 @@
 - 1 tablespoon olive oil
 - 1 onion, finely chopped
 - 2 garlic cloves, minced
-- 1 lb ground beef or Italian sausage or beyond ground meat
-- 1 can (28 oz) crushed tomatoes
+- 1 lb ground beef or Italian sausage or Beyond ground meat
+- 1 can (28 oz) crushed tomatoes or chunky tomato sauce
 - 2 tablespoons tomato paste
 - 1 teaspoon dried oregano
 - 1 teaspoon dried basil
