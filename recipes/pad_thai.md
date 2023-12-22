@@ -10,7 +10,7 @@
 
 ## Ingredients
 
-- 8 oz rice noodles
+- 8 oz rice or miracle noodles
 - 2 tablespoons vegetable oil
 - 1 red bell pepper, thinly sliced
 - 1 carrot, julienned
@@ -24,7 +24,6 @@
 - 3 tablespoons soy sauce (or tamari for gluten-free)
 - 1 tablespoon tamarind paste
 - 1 tablespoon maple syrup
-- 1 teaspoon chili sauce or Sriracha
 - 1/2 cup water
 
 ### Toppings
@@ -32,7 +31,6 @@
 - Extra peanuts
 - Lime wedges
 - Cilantro
-- Red pepper flakes (optional)
 
 ## Instructions
 

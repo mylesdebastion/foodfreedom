@@ -33,6 +33,7 @@ Inspiration: [https://silkroadrecipes.com/chicken-korma-recipe-video/](https://s
 ## Instructions
 
 1. **Prepare the Base:**
+   - Make Garlic & Ginger Paste – Use ¼ teaspoon of ground ginger and ½ teaspoon of powdered garlic for every tablespoon of fresh. Powdered ginger is even more potent, so use sparingly.
    - Heat oil in a large pan over medium heat. Add the onion, garlic, and ginger. Cook until the onion is soft and golden.
 
 2. **Add Vegan Chicken:**
