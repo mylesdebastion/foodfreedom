@@ -1,4 +1,5 @@
 # Vegan Korma with Shredded Plant-Based Chicken
+Inspiration: [https://silkroadrecipes.com/chicken-korma-recipe-video/](https://silkroadrecipes.com/chicken-korma-recipe-video/)
 
 ## Metadata
 - **Author:** Zebra T1D Diabetes Care
